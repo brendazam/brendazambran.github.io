@@ -1,9 +1,9 @@
 # E-Business Analyst
 
 ## Education
-MSc in E-Business & Innovation
+**MSc in E-Business & Innovation.** Lancaster University. 2020-2021
 
-Bachelor in Communication
+**Bachelor in Communication** Universidad Iberoamericana. 2012-2018
 
 ## Work Experience
 **Associate Researcher. Lancaster University. Apr - Oct 2022.**
