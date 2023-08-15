@@ -1,6 +1,6 @@
 # E-Business Analyst
 
-###Education
+### Education
 MSc in E-Business & Innovation
 Bachelor in Communication
 
