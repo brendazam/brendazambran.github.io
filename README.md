@@ -1,11 +1,11 @@
 # E-Business Analyst
 
-### Education
+## Education
 MSc in E-Business & Innovation
 
 Bachelor in Communication
 
-### Work Experience
+## Work Experience
 **Associate Researcher. Lancaster University. Apr - Oct 2022 ·Lancaster, England.**
 
 Working on the project Phoenix Takes Flight. Exploring usability and scalability challenges with community-based health support via social prescribing.
