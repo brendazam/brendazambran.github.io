@@ -6,27 +6,22 @@ MSc in E-Business & Innovation
 Bachelor in Communication
 
 ### Work Experience
-**Associate Researcher. Apr - Oct 2022 ·Lancaster, England, United Kingdom**
-	Working on the project Phoenix Takes Flight. Exploring usability and scalability challenges with community-based health support via social prescribing.
+**Associate Researcher. Apr - Oct 2022 ·Lancaster, England.**
+
+Working on the project Phoenix Takes Flight. Exploring usability and scalability challenges with community-based health support via social prescribing.
 - Focused on: Social Prescribing, Information Systems, social inequality.
 - Skills: Research · Client Relations · Data Collection · Data Analysis
 
 
-**Undergraduate Coordinator Assistant**
+**Undergraduate Coordinator Assistant. May - Aug 2022. Lancaster, England.**
 
-Part-time
-
-May 2022 - Aug 2022 · 4 mos
-- Lancaster, England, United Kingdom
-- I worked for the Department of Accounting and Finance at Lancaster University providing management and administrative support. During my role, I contributed to coordinating educational events at the university such as exams and providing constant communication with students, lecturers, family members and university staff.
+I worked for the Department of Accounting and Finance at Lancaster University providing management and administrative support. During my role, I contributed to coordinating educational events at the university such as exams and providing constant communication with students, lecturers, family members and university staff.
 - Skills: Organizational Communication · Administration · Microsoft Office · Management
 
 
-**Departmental Assistant**
-- Full-time
-- Sep 2021 - Apr 2022 · 8 mos
-- England, United Kingdom
-- My principal functions were to support the administration of the Economics Department at Lancaster University, like keeping constant communication with students and university staff about general matters. I supported the analysis of data from the department for analysis and presentations using the university software LUSI.
+**Departmental Assistant. Sep 2021 - Apr 2022. Lancaster, England.**
+
+My principal functions were to support the administration of the Economics Department at Lancaster University, like keeping constant communication with students and university staff about general matters. I supported the analysis of data from the department for analysis and presentations using the university software LUSI.
 - Skills: B2C · Professional Communication · Analytical Skills · Problem Solving · Microsoft Office
 
 
