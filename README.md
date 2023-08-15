@@ -3,7 +3,7 @@
 ## Education
 **MSc in E-Business & Innovation.** Lancaster University. 2020-2021
 
-**Bachelor in Communication** Universidad Iberoamericana. 2012-2018
+**Bachelor in Communication** Iberoamericana University. 2012-2018
 
 ## Work Experience
 **Associate Researcher. Lancaster University. Apr - Oct 2022.**
