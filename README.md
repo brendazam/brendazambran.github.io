@@ -2,21 +2,28 @@
 
 ### Education
 MSc in E-Business & Innovation
-- Bachelor in Communication
+
+Bachelor in Communication
 
 ### Work Experience
 **Associate Researcher**
-- Part-time
-- Apr 2022 - Oct 2022 · 7 mos
-- Lancaster, England, United Kingdom
-- Working on the project Phoenix Takes Flight. Exploring usability and scalability challenges with community-based health support via social prescribing.
+
+Part-time
+
+Apr 2022 - Oct 2022 · 7 mos
+
+Lancaster, England, United Kingdom
+
+Working on the project Phoenix Takes Flight. Exploring usability and scalability challenges with community-based health support via social prescribing.
 - Focused on: Social Prescribing, Information Systems, social inequality.
 - Skills: Research · Client Relations · Data Collection · Data Analysis
 
 
 **Undergraduate Coordinator Assistant**
-- Part-time
-- May 2022 - Aug 2022 · 4 mos
+
+Part-time
+
+May 2022 - Aug 2022 · 4 mos
 - Lancaster, England, United Kingdom
 - I worked for the Department of Accounting and Finance at Lancaster University providing management and administrative support. During my role, I contributed to coordinating educational events at the university such as exams and providing constant communication with students, lecturers, family members and university staff.
 - Skills: Organizational Communication · Administration · Microsoft Office · Management
